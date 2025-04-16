@@ -13,3 +13,11 @@ You can generate it directly without changing anything, and it can bypass Faceit
 
 
 10/04/2025:Somebody report that was fixed by Faceit.Good job
+
+https://DMA.WANG
+
+ASMedia USB3.0/3.1/Intel NMD NVme Updated
+
+Discord:https://discord.gg/UuGkmBtHZZ
+
+WeChat Tel：+19096660132
